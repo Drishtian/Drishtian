@@ -9,7 +9,7 @@ Pronouns : (she\her)
 
 I'm an undergraduate, pursuing studies from LNCT Group of Colleges , Bhopal
 
-I've chosen Computer science as my branch.
+My major is Computer Science.
 
 ## 🎨ACTIVITIES
 
